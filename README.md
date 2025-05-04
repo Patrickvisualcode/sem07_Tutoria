@@ -23,11 +23,11 @@ Mantener la practica de box o saltar la cuerda 2 veces al dia y descansar mas te
 Mantener mi cuerpo activo a pesar de estar mucho tiempo sentado, reducir la tensión muscular para concentrarme mejor en mis pasantías y estudios, y asegurar un mejor descanso.
 
 🗓️ Rutina mínima sugerida
-✔Al llegar a casa después del instituto (4:30 PM aprox.):
+     ✔Al llegar a casa después del instituto (4:30 PM aprox.):
 Después de ducharme, dedicar 5 minutos a ejercicios suaves. Pueden ser:
 - 4 minuto de sentadillas suaves 
 - 4 minutos de estiramientos ligeros enfocados en piernas y espalda 
-✔Durante el descanso de 10 minutos de las pasantías (momento variable):
+     ✔Durante el descanso de 10 minutos de las pasantías (momento variable):
 Aprovechar para 2-3 minutos de estiramientos sencillos de cuello, hombros y muñecas. También podria incluir algunas elevaciones de talones para activar la circulación.
-✔Al finalizar las pasantías (momento variable):
+     ✔Al finalizar las pasantías (momento variable):
 Antes de ducharme por segunda vez, dedicar 5 minutos a estiramientos más enfocados en las zonas que sientas tensas por estar sentado. Podria incluir estiramientos de espalda baja , estiramientos de isquiotibiales  y estiramientos de hombros y pecho.
